@@ -1,1 +1,1 @@
-aku bukan?
+.. Tulus Seperti Merpati
